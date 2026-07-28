@@ -127,5 +127,5 @@ e.ah
 well. And that fear tells us that this may happen if this.
 Is not taken care
 ```
-
+* दो गज़ दूरी मास्क है जरूरी ।
 * उम्मीद पे दुनिया क़ायम है । Hope is actually propelling this world .
