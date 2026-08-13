@@ -69,3 +69,10 @@ But how would they know about this?
 Because you have eliminated communication.
 At least for a wider, longer range, it definitely stops.
 ```
+
+> Add this word back and whole of this thing starts working.
+
+> Why billions of dollars ar being spent on advertisements all through
+> Cricket is shown on television, and so many organizations start releasing their advertisements during the matches.
+> Advertisements will be remembered by so many people and that is where magic of communication comes in.
+> 
