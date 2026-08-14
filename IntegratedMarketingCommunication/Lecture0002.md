@@ -75,4 +75,46 @@ At least for a wider, longer range, it definitely stops.
 > Why billions of dollars ar being spent on advertisements all through
 > Cricket is shown on television, and so many organizations start releasing their advertisements during the matches.
 > Advertisements will be remembered by so many people and that is where magic of communication comes in.
-> 
+
+* Vandana Kataria - She was playing with hockey. Lives near IIT Roorkee. Now so many organizations they want to get associated with her.
+
+## Marketing Communications has two flows :
+
+* **External flow** directed towards customers, channel members, companies and other public agencies
+* **Internal flow** directed towards company employees, departments stockholders
+
+## What is Integrated Marketing Communication(IMC)?
+
+The American Marketing Association defines IMC as "**a planning process designed** to assure that all brand contacts received by a customer or prospect for a product, service, or organization are relevant to that person and consistent over time."
+
+## Some more definitions
+
+* "IMC recognizes the added value of a **comprehensive plan** that evaluates the strategic roles of -
+Advertising, Direct Response, Sales Promotion and Public Relations - and combine those principles to
+provide clarity, consistency and maximum communications impact"
+    - American Association of Advertising Agencies.
+
+* "The concept under which a company carefully integrates and coordinates its many communication channels to deliver a clear, **consistent** and compelling message about the organization and its products"
+  - Philip Kotler
+
+
+* "A strategic business process used to plan, develop, execute and evaluate coordinated, measurable,
+persuasive brand communication programs overtime with consumers, customers, prospects, employees,
+associates and other targeted relevant external and internal audiences." The goal is to generate both short
+term financial returns and build long term brand and shareholder value
+  - Don Schultz of Northwestern University of USA
+
+```txt
+Remember, you have a positioning of yourself in the minds of your
+friends.
+They know you.
+As someone.
+And you would not like to change it now and then until and unless
+it is not good. But but the point is that if you have created an image
+in the minds of people, you would love that it should remain like
+that.
+Specially if it is a likable position which you have developed. So and
+when we say that you have developed a position, we imply that it is
+a likable position basically because you are working for that, so you
+are creating the image of yourself.
+```
