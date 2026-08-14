@@ -118,3 +118,4 @@ when we say that you have developed a position, we imply that it is
 a likable position basically because you are working for that, so you
 are creating the image of yourself.
 ```
+
