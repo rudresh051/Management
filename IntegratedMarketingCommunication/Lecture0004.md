@@ -50,3 +50,15 @@ packaging and so on.
 
 Amazon ad - आपकी अपनी दुकान  
 
+> They came and conqured.  
+> Should I say thank you to these online opitons  
+> Because we could get what we wanted in due course of time  
+> And somehow we must not have known that we will find everything online if   
+> somehow they would not have communicated that so emphasizingly in due course of time  
+> They have been saying for number of years that they have N number of things available
+> for N number of people for all sorts of people  
+> And then habitually, by instigation or by references, we started surfing for those  
+> things. And we started finding the relevant prices, the relevant combinations, the relevant choices and so on  
+> And that is where consistency and relevance start  
+
+![alt text](image-6.png)
